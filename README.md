@@ -138,7 +138,7 @@ These are **observations, not confirmed vulnerabilities**. Seeing a software ver
 **Kwanele**
 Cybersecurity & Ethical Hacking Intern, Networkwalks (Batch B084)
 
-🔗 LinkedIn:(https://lnkd.in/p/dba3vkSH)
+🔗 LinkedIn[:(https://lnkd.in/p/eYznfXvw)
 
 ---
 
